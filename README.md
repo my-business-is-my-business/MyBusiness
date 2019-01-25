@@ -1,1 +1,1 @@
-# just-a-name
+# Shannon Kay Photography
